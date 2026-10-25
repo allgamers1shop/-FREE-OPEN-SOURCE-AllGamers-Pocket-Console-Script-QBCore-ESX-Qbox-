@@ -10,7 +10,7 @@ Transform your gameplay experience by introducing a working retro handheld conso
 📥 Download:
 Available right now exclusively on our Discord server!
 👉 Join here: https://discord.gg/hAfd5t2YXB
-👉 video: 
+👉 video: https://youtu.be/iJyo-aBeiWc
 🔔 Subscribe and leave a like if you enjoy our work and want more free community scripts!
 
 #AllGamers #RetroGaming #FiveM #Script #OpenSource #GamingMod #Arcade
